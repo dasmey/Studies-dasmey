@@ -1,2 +1,2 @@
 # Studies-dasmey
-The name is crystal clear
+Ready to go
